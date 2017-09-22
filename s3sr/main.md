@@ -6,4 +6,6 @@ Une licorne arpentait l'arc-en-ciel.
 
 Et les trolls portaient des tutus.
 
+Mon nom, c'est Balthazar, j'ai topdeck!
+
 Balthazar, c'est un canard !
